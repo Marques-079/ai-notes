@@ -1,0 +1,2 @@
+# ai-notes
+ Notes :)
